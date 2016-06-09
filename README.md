@@ -6,4 +6,4 @@
 [在 3 个月之内准备托福，想要达到 100+，有哪些方法建议?](https://www.zhihu.com/question/27244993/answer/83030807)  
 作者：何宜晖  
 QQ 535505132  
-Email: yihuihe@foxmail.com  
+微信 he535505132  
